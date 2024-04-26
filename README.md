@@ -1,6 +1,6 @@
 👋 Hi there, I'm Andrew Stiles
 
-🎓 I'm currently an IT student** at Metropolitan Community College, Omaha, NE.
+🎓 I'm currently an IT student at Metropolitan Community College, Omaha, NE.
 
 🚚 Professionally, I serve as a Gig Delivery Driver for Amazon Flex, until I can find a job in the IT world.
 
