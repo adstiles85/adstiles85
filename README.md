@@ -2,7 +2,7 @@
 
 🎓 I'm currently an IT student** at Metropolitan Community College, Omaha, NE.
 
-🚚 Professionally, I serve as a Gig Delivery Driver** for Amazon Flex, until I can find a job in the IT world.
+🚚 Professionally, I serve as a Gig Delivery Driver for Amazon Flex, until I can find a job in the IT world.
 
 🍸 My background in hospitality. includes managing beverage operations and social media for bars and restaurants.
 
