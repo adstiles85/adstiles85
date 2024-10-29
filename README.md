@@ -1,6 +1,6 @@
 👋 Hi there, I'm Andrew Stiles
 
-🎓 I'm currently an IT student at Metropolitan Community College, Omaha, NE.
+🎓 I'm currently a Software Development student at Bellevue University, in Bellevue, NE.
 
 🚚 Professionally, I serve as a Gig Delivery Driver for Amazon Flex, until I can find a job in the IT world.
 
